@@ -1,0 +1,1 @@
+![A joke that says 'There are obvious social costs for those who always talk more than they listen in conversation](https://user-images.githubusercontent.com/37304606/109722977-68065d80-7ba5-11eb-9648-e0a4fa841275.png)
